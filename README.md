@@ -11,4 +11,5 @@ absolutely NOTHING!!
 
 thx awesome person on my atabook :D
 
-I promise that i am sane and ok!!!!!(?)
+if you see me as THIS ![IMG_3951](https://github.com/user-attachments/assets/802471aa-4fd2-4ff6-b625-03d3bc4310ce) pony, this is a character from a (currently) unfinished fangan (inspired by tetro) that I voice in! This is Student 9 :)
+
