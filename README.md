@@ -11,5 +11,5 @@ absolutely NOTHING!!
 
 thx awesome person on my atabook :D
 
-if you see me as THIS ![IMG_3951](https://github.com/user-attachments/assets/802471aa-4fd2-4ff6-b625-03d3bc4310ce) pony, this is a character from a (currently) unfinished fangan (inspired by tetro) that I voice in! This is Student 9 :)
+![IMG_3951](https://github.com/user-attachments/assets/802471aa-4fd2-4ff6-b625-03d3bc4310ce) I love this gal (she's from Danganronpa Requiem Blue! It's currently unreleased and in production :))
 
