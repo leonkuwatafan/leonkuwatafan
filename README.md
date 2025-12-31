@@ -11,5 +11,5 @@ absolutely NOTHING!!
 
 thx awesome person on my atabook :D
 
-![IMG_3951](https://github.com/user-attachments/assets/802471aa-4fd2-4ff6-b625-03d3bc4310ce) I love this gal (she's from Danganronpa Requiem Blue! It's currently unreleased and in production :))
+![IMG_3951](https://github.com/user-attachments/assets/802471aa-4fd2-4ff6-b625-03d3bc4310ce) I love this gal (she's from Danganronpa Requiem Blue! It's currently in production :))
 
